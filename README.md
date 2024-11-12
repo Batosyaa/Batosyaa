@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Batosyaa
+- 👀 I’m interested in AI development
+- 🌱 I’m currently learning Full-stack, Data Anlysis, AI/ML engineering
+- 💞️ I’m looking to collaborate on projects related to automatixation and optimization processes for businesses.
+- 📫 How to reach me @Batosyaa is my Telegram tag.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: 
